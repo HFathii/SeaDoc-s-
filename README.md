@@ -1,2 +1,2 @@
-# SeaDoc-s-
+# SeaDoc®
 Created By TMO Group
